@@ -1,7 +1,7 @@
 <div align="center">
 
-![](https://i.pinimg.com/originals/e6/3c/8e/e63c8ec903196b8a1d192849ee3a5e11.gif)
+![](https://i.pinimg.com/736x/24/78/d9/2478d9815c2f785c59a43284be618c43.jpg)
 
-jasper or anu
+jasper or anuㅤㅤangelicineㅤ+ㅤaroace
 
 read rntry 4 more info !
